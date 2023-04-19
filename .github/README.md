@@ -7,7 +7,7 @@
 <p align="center">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/FallenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ϰᴅ ✘ ʙᴏᴛ](https://t.me/XD_BOTZZ)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
