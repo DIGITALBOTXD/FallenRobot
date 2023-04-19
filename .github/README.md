@@ -1,7 +1,7 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ 」──
+    ──「 ϰᴅ ✘ ʙᴏᴛ 」──
 </h2>
 <img src="https://graph.org/file/19c7568fd413cb9e2c6a7.jpg"
 <p align="center">
